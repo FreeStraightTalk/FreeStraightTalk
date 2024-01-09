@@ -1,6 +1,6 @@
 # Get Free StraightTalk Gift Card Codes for Free StraightTalk Airtime
 
-Are you looking for ways to get [free StraightTalk airtime](https://freestraighttalk.net)? Look no further! In this article, we will guide you on how to obtain [free StraightTalk gift card codes](https://freestraighttalk.net/generator.php), allowing you to enjoy free airtime for your StraightTalk phone. So let's dive right in!
+Are you looking for ways to get [free StraightTalk airtime](https://www.freestraighttalk.net)? Look no further! In this article, we will guide you on how to obtain [free StraightTalk gift card codes](https://www.freestraighttalk.net/generator.php), allowing you to enjoy free airtime for your StraightTalk phone. So let's dive right in!
 
 ## What is StraightTalk?
 
